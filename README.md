@@ -16,34 +16,34 @@ Welcome group members and briefly introduce the purpose of the meeting.
 Discussion of the Ingathering targets and the amount expected from the movie night fundraiser.
 We need to clarify how the funds will be allocated betweeen Daniel and Esther Houses towards the Ingathering fund raising.
 
-**4. Movie Selection (15 minutes):**
+**4. Movie Selection (10 minutes):**
 Discuss potential movie choices (family-friendly, faith-based, etc.).
 Decide who will be responsible for obtaining or screening the movie.
 
-**5. Event Date, Time, and Venue (10 minutes):**
+**5. Event Date, Time, and Venue (5 minutes):**
 Propose and finalize the date, time, and venue for the movie night.
 Ensure the venue aligns with the expected audience size.
 
-**6. Ticket Sales and Pricing (15 minutes):**
+**6. Ticket Sales and Pricing (10 minutes):**
 Discuss ticket prices, including options for group or family rates.
 Decide how tickets will be sold (online, at Church, at the door).
 Decide if major funds are to be raised by food/item sales before, during and after the movie 
 Also see item 8 below
 
-**7. Logistics and Setup (20 minutes):**
+**7. Logistics and Setup (15 minutes):**
 Sound and projection equipment.
 Seating arrangements.
 Decorations or theme (if applicable).
 
-**8. Refreshments and Concessions (15 minutes):**
+**8. Refreshments and Concessions (10 minutes):**
 Decide on snacks and drinks (popcorn, sodas, etc.).
 Assign roles for organizing refreshments and managing sales on the night.
 
-**9. Marketing and Promotion (15 minutes):**
+**9. Marketing and Promotion (10 minutes):**
 Plan how to promote the event: flyers, social media, Church announcements, etc.
 Assign responsibility for designing and distributing promotional materials.
 
-**10. Volunteers and Roles (10 minutes):**
+**10. Volunteers and Roles (5 minutes):**
 Identify the number of volunteers needed for various tasks: ticketing, concessions, setup, cleanup.
 Assign roles or delegate tasks to group members.
 
